@@ -1,2 +1,3 @@
 # Big-Bang
-a new being
+a new being for a better tomorrow
+
